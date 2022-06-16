@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @saumyaparmar
+- 👀 I’m interested in Game Development 
+- 💞️ I’m looking to collaborate on unreal and unity projects
+- 📫 How to reach me: 
+- Email: saumyaparmar0@gmail.com
+- Linkedin: https://www.linkedin.com/in/saumya-parmar-9731aa66/
